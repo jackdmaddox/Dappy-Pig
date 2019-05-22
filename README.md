@@ -1,6 +1,6 @@
 ## Privacy Policy
 
-Casey Foster built the Dappy Pig app as a Commercial app. This SERVICE is provided by Casey Foster and is intended for use as is.
+Casey Foster built the Baby Pig app as a Commercial app. This SERVICE is provided by Casey Foster and is intended for use as is.
 
 This page is used to inform visitors regarding my policies with the collection, use, and disclosure of Personal Information if anyone decided to use my Service.
 
